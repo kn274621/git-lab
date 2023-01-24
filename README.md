@@ -1,0 +1,4 @@
+Karli Nadsady
+knadsady
+kn274621@ohio.edu
+answers recorded on answers.md
